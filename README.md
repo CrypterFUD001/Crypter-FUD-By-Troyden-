@@ -12,7 +12,7 @@
  
  Video:     https://t.me/crypterfud
  <br>
-▔▔▔▔▔▔╲▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+▔▔▔▔▔▔╲▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
 
 <img src="https://i.postimg.cc/Px937mwJ/crt.jpg" alt="Trulli" width="339" height="190">
