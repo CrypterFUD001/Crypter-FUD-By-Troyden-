@@ -10,7 +10,7 @@
  
  Telegram: 👉  https://t.me/troy_den
  
- Video:     https://t.me/crypterfud
+ Video:     https://www.youtube.com/watch?v=v3iUKW4PES4
  <br>
 ▔▔▔▔▔▔╲▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
