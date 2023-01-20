@@ -15,4 +15,4 @@
 ▔▔▔▔▔▔╲▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
 
-<img src="https://i.postimg.cc/nzNpbbW8/troyden.jpg" alt="Trulli" width="239" height="232">
+<img src="https://i.postimg.cc/Px937mwJ/crt.jpg" alt="Trulli" width="239" height="232">
