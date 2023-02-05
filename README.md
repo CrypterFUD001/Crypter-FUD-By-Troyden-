@@ -8,7 +8,7 @@
 ├  100% FUD. 
 <br>
  
- Telegram: 👉  https://t.me/troy_den
+ Telegram: 👉  https://t.me/sniper_spy
  
  Video:     https://www.youtube.com/watch?v=v3iUKW4PES4
  <br>
