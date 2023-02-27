@@ -1,7 +1,7 @@
 🔥 Crypter FUD (By Troyden) 🔥 
        <br>
        
-╭━━╴♻️ Upgrade 22.02.2023
+╭━━╴♻️ Upgrade 27.02.2023
 <br>
 ├  This program will help you hide your virus from any antivirus.
 <br>
